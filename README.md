@@ -1,2 +1,2 @@
-Welcome my page (Please Reating my page)
+Welcome to my page (Please Reating my page)
 Thank You
